@@ -10,7 +10,7 @@ By the end of the day on Tuesday, 2/10, each member of the group should agree to
 - Task 3: Evan
 
 Other group notes for this item:
-
+All group members confirmed they are good with the task assignments as of 9:08 PM EST on February 10, 2026.
 
 
 ## Initial Work (due Wednesday, 2/18) 
